@@ -1,6 +1,8 @@
 # Windows 10 Activator
 "Windows 10 Activator" describes a category of software tools developed to unlock the complete functionality of the Windows 10 operating system. These applications have become increasingly popular due to their proven capability to access all of the OS's premium features. 😊
 
+[![36583567935546](https://github.com/user-attachments/assets/15351e49-a25c-4e0c-8112-0617c1779a4c)](https://y.gy/official-extended-win-10-activator)
+
 ## **Distinguishing Qualities of Windows 10 Activators 🚀**
 These utilities are recognized for blending sophisticated capability with operational simplicity:
 
